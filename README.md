@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "A single dream is more powerful than a thousand realities."	
+> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "	
 >
-> — *J.R.R. Tolkien*
+> — *Paramahansa Yogananda*
 
