@@ -3,11 +3,11 @@
 I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[jppnhmr](https://github.com/jppnhmr/jppnhmr)
+[daily-standup](https://github.com/jppnhmr/daily-standup)
 
 ### Daily Quote
 
-> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "	
+> "You must welcome change as the rule but not as your ruler. "	
 >
-> — *Paramahansa Yogananda*
+> — *Denis Waitley*
 
