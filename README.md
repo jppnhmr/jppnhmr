@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?"	
+> "Smile, breathe and go slowly."	
 >
-> — *Seneca*
+> — *Thich Nhat Hanh*
 
