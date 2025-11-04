@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Smile, breathe and go slowly."	
+> "Be as fluid as water, do not give your enemies anything solid to attack."	
 >
-> — *Thich Nhat Hanh*
+> — *Robert Greene*
 
