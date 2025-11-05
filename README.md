@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Be as fluid as water, do not give your enemies anything solid to attack."	
+> "Circumstances do not make the man, they reveal him."	
 >
-> — *Robert Greene*
+> — *James Allen*
 
