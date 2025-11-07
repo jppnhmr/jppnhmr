@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."	
+> "Avoiding danger is no safer in the long run than exposure."	
 >
-> — *Zig Ziglar*
+> — *Helen Keller*
 
