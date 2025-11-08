@@ -3,11 +3,11 @@
 I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[to-do-list](https://github.com/jppnhmr/to-do-list)
+[web-scraper](https://github.com/jppnhmr/web-scraper)
 
 ### Daily Quote
 
-> "Avoiding danger is no safer in the long run than exposure."	
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."	
 >
-> — *Helen Keller*
+> — *George Eliot*
 
