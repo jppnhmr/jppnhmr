@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."	
+> "Make yourself so useful to other people, that they think you are irreplaceable."	
 >
-> — *George Eliot*
+> — *Og Mandino*
 
