@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Make yourself so useful to other people, that they think you are irreplaceable."	
+> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."	
 >
-> — *Og Mandino*
+> — *Brian Tracy*
 
