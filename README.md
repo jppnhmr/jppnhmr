@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."	
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "	
 >
-> — *Brian Tracy*
+> — *Zig Ziglar*
 
