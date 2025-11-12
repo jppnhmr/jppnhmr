@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "	
+> "Abundance of knowledge does not teach men to be wise."	
 >
-> — *Zig Ziglar*
+> — *Heraclitus*
 
