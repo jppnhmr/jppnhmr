@@ -3,11 +3,11 @@
 I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[web-scraper](https://github.com/jppnhmr/web-scraper)
+[UK-weather-dashboard](https://github.com/jppnhmr/UK-weather-dashboard)
 
 ### Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."	
+> "Most of the evil in this world is done by people with good intentions."	
 >
-> — *Heraclitus*
+> — *T.S. Eliot*
 
