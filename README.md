@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Most of the evil in this world is done by people with good intentions."	
+> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."	
 >
-> — *T.S. Eliot*
+> — *A.A. Milne*
 
