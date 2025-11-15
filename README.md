@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."	
+> "Focus is a matter of deciding what things you're not going to do."	
 >
-> — *A.A. Milne*
+> — *John Carmack*
 
