@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."	
+> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."	
 >
-> — *John Carmack*
+> — *Thich Nhat Hanh*
 
