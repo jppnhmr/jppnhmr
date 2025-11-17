@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."	
+> "When we allow negative messages to fester in our head, they take on a life of their own."	
 >
-> — *Thich Nhat Hanh*
+> — *Lolly Daskal*
 
