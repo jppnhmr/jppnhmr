@@ -1,6 +1,6 @@
 
 ### About Me
-I'm a software engineering expanding my python knowledge.
+Data Analyst and Software Developer.
 
 ### What I'm working on
 [UK-weather-dashboard](https://github.com/jppnhmr/UK-weather-dashboard)
