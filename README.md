@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "When we allow negative messages to fester in our head, they take on a life of their own."	
+> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."	
 >
-> — *Lolly Daskal*
+> — *Sathya Sai Baba*
 
