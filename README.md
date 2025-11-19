@@ -1,13 +1,13 @@
 
 ### About Me
-Data Analyst and Software Developer.
+I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[UK-weather-dashboard](https://github.com/jppnhmr/UK-weather-dashboard)
+[jppnhmr](https://github.com/jppnhmr/jppnhmr)
 
 ### Daily Quote
 
-> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."	
+> "It is hard to fail, but it is worse never to have tried to succeed."	
 >
-> — *Sathya Sai Baba*
+> — *Theodore Roosevelt*
 
