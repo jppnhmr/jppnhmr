@@ -3,11 +3,11 @@
 I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[jppnhmr](https://github.com/jppnhmr/jppnhmr)
+[daily-standup](https://github.com/jppnhmr/daily-standup)
 
 ### Daily Quote
 
-> "It is hard to fail, but it is worse never to have tried to succeed."	
+> "You are not only responsible for what you say, but also for what you do not say. "	
 >
-> — *Theodore Roosevelt*
+> — *Martin Luther*
 
