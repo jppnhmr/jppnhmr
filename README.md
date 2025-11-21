@@ -1,6 +1,6 @@
 
 ### About Me
-I'm a software engineering expanding my python knowledge.
+I'm a software developer / data analyst.
 
 ### What I'm working on
 [daily-standup](https://github.com/jppnhmr/daily-standup)
