@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "You are not only responsible for what you say, but also for what you do not say. "	
+> "Smell the cheese often so you know when it is getting old."	
 >
-> — *Martin Luther*
+> — *Spencer Johnson*
 
