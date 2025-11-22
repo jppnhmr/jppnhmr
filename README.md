@@ -1,13 +1,13 @@
 
 ### About Me
-I'm a software developer / data analyst.
+I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[daily-standup](https://github.com/jppnhmr/daily-standup)
+[jppnhmr](https://github.com/jppnhmr/jppnhmr)
 
 ### Daily Quote
 
-> "Smell the cheese often so you know when it is getting old."	
+> "Abundance of knowledge does not teach men to be wise."	
 >
-> — *Spencer Johnson*
+> — *Heraclitus*
 
