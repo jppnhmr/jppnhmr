@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."	
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."	
 >
-> — *Heraclitus*
+> — *Eckhart Tolle*
 
