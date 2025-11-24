@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."	
+> "The wise accomplish all that they want without arousing the envy or scorn of others."	
 >
-> — *Eckhart Tolle*
+> — *Ming-Dao Deng*
 
