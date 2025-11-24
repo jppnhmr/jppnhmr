@@ -1,6 +1,6 @@
 
 ### About Me
-I'm a software engineering expanding my python knowledge.
+I'm a Data Analyst / Software Developer.
 
 ### What I'm working on
 [jppnhmr](https://github.com/jppnhmr/jppnhmr)
