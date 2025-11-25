@@ -1,13 +1,13 @@
 
 ### About Me
-I'm a Data Analyst / Software Developer.
+I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
 [jppnhmr](https://github.com/jppnhmr/jppnhmr)
 
 ### Daily Quote
 
-> "The wise accomplish all that they want without arousing the envy or scorn of others."	
+> "Sometimes, the only way to evolve is to open ourselves fully."	
 >
-> — *Ming-Dao Deng*
+> — *Kamal Ravikant*
 
