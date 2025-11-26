@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Sometimes, the only way to evolve is to open ourselves fully."	
+> "Be willing to be a beginner every single morning."	
 >
-> — *Kamal Ravikant*
+> — *Meister Eckhart*
 
