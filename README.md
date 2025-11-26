@@ -1,6 +1,6 @@
 
 ### About Me
-I'm a Data Analyst building cool analytics projects and tools.
+I'm a Data Analyst / Software Developer. I build cool analytics tools.
 
 ### What I'm working on
 [jppnhmr](https://github.com/jppnhmr/jppnhmr)
