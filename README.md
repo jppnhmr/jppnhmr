@@ -3,11 +3,11 @@
 I'm a software engineering expanding my python knowledge.
 
 ### What I'm working on
-[jppnhmr](https://github.com/jppnhmr/jppnhmr)
+[finance-data-api](https://github.com/jppnhmr/finance-data-api)
 
 ### Daily Quote
 
-> "Unless you're ashamed of yourself now and then, you're not honest."	
+> "Nothing is impossible. The word itself says 'I'm possible!'"	
 >
-> — *William Faulkner*
+> — *Audrey Hepburn*
 
