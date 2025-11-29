@@ -7,7 +7,7 @@ I'm a software engineering expanding my python knowledge.
 
 ### Daily Quote
 
-> "Nothing is impossible. The word itself says 'I'm possible!'"	
+> "Happiness is pretty simple: someone to love, something to do, something to look forward to."	
 >
-> — *Audrey Hepburn*
+> — *Rita Mae Brown*
 
