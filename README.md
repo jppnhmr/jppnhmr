@@ -1,13 +1,14 @@
 
 ### About Me
-I'm a software engineering expanding my python knowledge.
+Data Analyst / Software Developer.
+
 
 ### What I'm working on
-[finance-data-api](https://github.com/jppnhmr/finance-data-api)
+[jppnhmr](https://github.com/jppnhmr/jppnhmr)
 
 ### Daily Quote
 
-> "Happiness is pretty simple: someone to love, something to do, something to look forward to."	
+> "You make your own luck if you stay at it long enough."	
 >
-> — *Rita Mae Brown*
+> — *Naval Ravikant*
 
