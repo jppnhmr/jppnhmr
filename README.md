@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[jppnhmr](https://github.com/jppnhmr/jppnhmr)
+[log-keeper](https://github.com/jppnhmr/log-keeper)
 
 ### Daily Quote
 
-> "You make your own luck if you stay at it long enough."	
+> "An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold."	
 >
-> — *Naval Ravikant*
+> — *Chinese Proverb*
 
