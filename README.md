@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold."	
+> "As soon as you truly commit to making something happen, the 'how' will reveal itself."	
 >
-> — *Chinese Proverb*
+> — *Tony Robbins*
 
