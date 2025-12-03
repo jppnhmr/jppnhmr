@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "As soon as you truly commit to making something happen, the 'how' will reveal itself."	
+> "If you're afraid to die, you're afraid to live. You can't have one without the other."	
 >
-> — *Tony Robbins*
+> — *Rita Mae Brown*
 
