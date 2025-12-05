@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you're afraid to die, you're afraid to live. You can't have one without the other."	
+> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."	
 >
-> — *Rita Mae Brown*
+> — *Barack Obama*
 
