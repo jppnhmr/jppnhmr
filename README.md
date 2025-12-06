@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."	
+> "We are all different. Don't judge, understand instead."	
 >
-> — *Barack Obama*
+> — *Roy T. Bennett*
 
