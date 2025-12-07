@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We are all different. Don't judge, understand instead."	
+> "Go confidently in the direction of your dreams. Live the life you've imagined."	
 >
-> — *Roy T. Bennett*
+> — *Arnold Schwarzenegger*
 
