@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Go confidently in the direction of your dreams. Live the life you've imagined."	
+> "Your problem isn't the problem. Your reaction is the problem."	
 >
-> — *Arnold Schwarzenegger*
+> — *Unknown*
 
