@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[log-keeper](https://github.com/jppnhmr/log-keeper)
+[job-finder](https://github.com/jppnhmr/job-finder)
 
 ### Daily Quote
 
-> "Your problem isn't the problem. Your reaction is the problem."	
+> "Nothing can bring you peace but yourself."	
 >
-> — *Unknown*
+> — *Dale Carnegie*
 
