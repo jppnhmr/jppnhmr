@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[job-finder](https://github.com/jppnhmr/job-finder)
+[finance-data-api](https://github.com/jppnhmr/finance-data-api)
 
 ### Daily Quote
 
-> "Nothing can bring you peace but yourself."	
+> "Without the rain there would be no rainbow."	
 >
-> — *Dale Carnegie*
+> — *Gilbert Chesterton*
 
