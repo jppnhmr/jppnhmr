@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Without the rain there would be no rainbow."	
+> "Man's character is his fate."	
 >
-> — *Gilbert Chesterton*
+> — *Heraclitus*
 
