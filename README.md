@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Man's character is his fate."	
+> "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully."	
 >
-> — *Heraclitus*
+> — *Richard Bach*
 
