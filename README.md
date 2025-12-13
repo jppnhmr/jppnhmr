@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully."	
+> "The more you like yourself, the less you are like anyone else, which makes you unique."	
 >
-> — *Richard Bach*
+> — *Walt Disney*
 
