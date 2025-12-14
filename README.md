@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The more you like yourself, the less you are like anyone else, which makes you unique."	
+> "Do good, live in the most positive and joyful way possible every day."	
 >
-> — *Walt Disney*
+> — *Roy T. Bennett*
 
