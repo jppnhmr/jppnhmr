@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Do good, live in the most positive and joyful way possible every day."	
+> "Goals are the fuel in the furnace of achievement."	
 >
-> — *Roy T. Bennett*
+> — *Brian Tracy*
 
