@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Goals are the fuel in the furnace of achievement."	
+> "If you are ever the smartest person in the room, you are in the wrong room."	
 >
-> — *Brian Tracy*
+> — *C. Sean McGee*
 
