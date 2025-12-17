@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you are ever the smartest person in the room, you are in the wrong room."	
+> "Even the finest sword plunged into salt water will eventually rust."	
 >
-> — *C. Sean McGee*
+> — *Sun Tzu*
 
