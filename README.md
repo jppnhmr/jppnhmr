@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Even the finest sword plunged into salt water will eventually rust."	
+> "Try not to become a man of success, but rather try to become a man of value."	
 >
-> — *Sun Tzu*
+> — *Albert Einstein*
 
