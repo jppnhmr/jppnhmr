@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Try not to become a man of success, but rather try to become a man of value."	
+> "Consider the rights of others before your own feelings, and the feelings of others before your own rights."	
 >
-> — *Albert Einstein*
+> — *John Wooden*
 
