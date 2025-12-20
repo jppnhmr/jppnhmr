@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Consider the rights of others before your own feelings, and the feelings of others before your own rights."	
+> "The eye with which I see God is the same eye with which God sees me."	
 >
-> — *John Wooden*
+> — *Meister Eckhart*
 
