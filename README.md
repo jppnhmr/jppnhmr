@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The eye with which I see God is the same eye with which God sees me."	
+> "Our attitude toward life determines life's attitude towards us."	
 >
-> — *Meister Eckhart*
+> — *Earl Nightingale*
 
