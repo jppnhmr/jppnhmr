@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Our attitude toward life determines life's attitude towards us."	
+> "Life can be wonderful if you're not afraid of it."	
 >
-> — *Earl Nightingale*
+> — *Charlie Chaplin*
 
