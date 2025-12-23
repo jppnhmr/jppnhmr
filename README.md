@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Life can be wonderful if you're not afraid of it."	
+> "Where there's life, there's hope."	
 >
-> — *Charlie Chaplin*
+> — *Stephen Hawking*
 
