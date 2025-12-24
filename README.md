@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Where there's life, there's hope."	
+> "Guilt is perhaps the most painful companion of death."	
 >
-> — *Stephen Hawking*
+> — *Coco Chanel*
 
