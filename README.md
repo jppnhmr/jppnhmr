@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Guilt is perhaps the most painful companion of death."	
+> "Keep your friends close, and your enemies closer."	
 >
-> — *Coco Chanel*
+> — *Sun Tzu*
 
