@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Keep your friends close, and your enemies closer."	
+> "Work harder on yourself than you do on your job."	
 >
-> — *Sun Tzu*
+> — *Jim Rohn*
 
