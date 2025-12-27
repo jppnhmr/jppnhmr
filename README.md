@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Work harder on yourself than you do on your job."	
+> "Those who look for the bad in people will surely find it."	
 >
-> — *Jim Rohn*
+> — *Abraham Lincoln*
 
