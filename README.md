@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Those who look for the bad in people will surely find it."	
+> "The opportunity of defeating the enemy is provided by the enemy himself."	
 >
-> — *Abraham Lincoln*
+> — *Sun Tzu*
 
