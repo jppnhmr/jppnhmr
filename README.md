@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The opportunity of defeating the enemy is provided by the enemy himself."	
+> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "	
 >
-> — *Sun Tzu*
+> — *Margaret Mead*
 
