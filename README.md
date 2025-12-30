@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "	
+> "Gratitude is the fairest blossom which springs from the soul."	
 >
-> — *Margaret Mead*
+> — *Henry Ward Beecher*
 
