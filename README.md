@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."	
+> "You came empty handed, and you will leave empty handed."	
 >
-> — *Henry Ward Beecher*
+> — *Bhagavad Gita*
 
