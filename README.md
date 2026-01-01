@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[finance-data-api](https://github.com/jppnhmr/finance-data-api)
+[monetary-policy-commodity-analysis](https://github.com/jppnhmr/monetary-policy-commodity-analysis)
 
 ### Daily Quote
 
-> "You came empty handed, and you will leave empty handed."	
+> "If you do not push the boundaries, you will never know where they are."	
 >
-> — *Bhagavad Gita*
+> — *T.S. Eliot*
 
