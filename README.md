@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you do not push the boundaries, you will never know where they are."	
+> "Numbing the pain for a while will make it worse when you finally feel it."	
 >
-> — *T.S. Eliot*
+> — *Albus Dumbledore*
 
