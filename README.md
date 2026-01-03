@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Numbing the pain for a while will make it worse when you finally feel it."	
+> "When one does not have what one wants, one must want what one has."	
 >
-> — *Albus Dumbledore*
+> — *Sigmund Freud*
 
