@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When one does not have what one wants, one must want what one has."	
+> "We suffer more often in imagination than in reality."	
 >
-> — *Sigmund Freud*
+> — *Seneca*
 
