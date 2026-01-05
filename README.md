@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We suffer more often in imagination than in reality."	
+> "The less you open your heart to others, the more your heart suffers."	
 >
-> — *Seneca*
+> — *Deepak Chopra*
 
