@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The less you open your heart to others, the more your heart suffers."	
+> "We must embrace pain and burn it as fuel for our journey."	
 >
-> — *Deepak Chopra*
+> — *Kenji Miyazawa*
 
