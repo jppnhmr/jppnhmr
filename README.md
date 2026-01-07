@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We must embrace pain and burn it as fuel for our journey."	
+> "Be kind, for everyone you meet is fighting a harder battle."	
 >
-> — *Kenji Miyazawa*
+> — *Plato*
 
