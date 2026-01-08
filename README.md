@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[monetary-policy-commodity-analysis](https://github.com/jppnhmr/monetary-policy-commodity-analysis)
+[employment-analysis](https://github.com/jppnhmr/employment-analysis)
 
 ### Daily Quote
 
-> "Be kind, for everyone you meet is fighting a harder battle."	
+> "Failure is the highway to success."	
 >
-> — *Plato*
+> — *Og Mandino*
 
