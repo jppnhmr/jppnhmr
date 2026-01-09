@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Failure is the highway to success."	
+> "Don't think money does everything or you are going to end up doing everything for money."	
 >
-> — *Og Mandino*
+> — *Voltaire*
 
