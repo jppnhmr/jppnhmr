@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Hope means hoping when everything seems hopeless."	
+> "You must be willing to do what others won't do, to have what others won't have."	
 >
-> — *Gilbert Chesterton*
+> — *Les Brown*
 
