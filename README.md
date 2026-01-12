@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You must be willing to do what others won't do, to have what others won't have."	
+> "I didn't get there by wishing for it or hoping for it, but by working for it."	
 >
-> — *Les Brown*
+> — *Estee Lauder*
 
