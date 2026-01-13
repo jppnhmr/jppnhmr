@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I didn't get there by wishing for it or hoping for it, but by working for it."	
+> "You have the ability, now apply yourself."	
 >
-> — *Estee Lauder*
+> — *Benjamin Mays*
 
