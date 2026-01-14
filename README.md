@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You have the ability, now apply yourself."	
+> "The future belongs to those who learn more skills and combine them in creative ways."	
 >
-> — *Benjamin Mays*
+> — *Robert Greene*
 
