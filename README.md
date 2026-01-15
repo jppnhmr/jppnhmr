@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The future belongs to those who learn more skills and combine them in creative ways."	
+> "Only the educated are free."	
 >
-> — *Robert Greene*
+> — *Epictetus*
 
