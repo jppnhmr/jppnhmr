@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Only the educated are free."	
+> "Live your life and forget your age."	
 >
-> — *Epictetus*
+> — *Norman Vincent Peale*
 
