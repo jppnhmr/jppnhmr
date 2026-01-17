@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Live your life and forget your age."	
+> "I have never let my schooling interfere with my education."	
 >
-> — *Norman Vincent Peale*
+> — *Mark Twain*
 
