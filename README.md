@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I have never let my schooling interfere with my education."	
+> "Who looks outside, dreams; who looks inside, awakes."	
 >
-> — *Mark Twain*
+> — *Lolly Daskal*
 
