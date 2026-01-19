@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."	
+> "Definitions belong to the definers, not the defined."	
 >
-> — *Lolly Daskal*
+> — *Toni Morrison*
 
