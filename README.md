@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Definitions belong to the definers, not the defined."	
+> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."	
 >
-> — *Toni Morrison*
+> — *Elon Musk*
 
