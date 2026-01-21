@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."	
+> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."	
 >
-> — *Elon Musk*
+> — *Socrates*
 
