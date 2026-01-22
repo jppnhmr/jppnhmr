@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."	
+> "If you believe you can, you can. If you believe you can't, then, well you can't."	
 >
-> — *Socrates*
+> — *Celestine Chua*
 
