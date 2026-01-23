@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."	
+> "Forgive those who have hurt you."	
 >
-> — *Celestine Chua*
+> — *Les Brown*
 
