@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Forgive those who have hurt you."	
+> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."	
 >
-> — *Les Brown*
+> — *Dan Brown*
 
