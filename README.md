@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."	
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"	
 >
-> — *Dan Brown*
+> — *Dogen*
 
