@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"	
+> "Better to have, and not need, than to need, and not have."	
 >
-> — *Dogen*
+> — *Franz Kafka*
 
