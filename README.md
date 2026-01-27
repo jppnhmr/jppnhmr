@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Better to have, and not need, than to need, and not have."	
+> "Make failure your teacher, not your undertaker.  "	
 >
-> — *Franz Kafka*
+> — *Zig Ziglar*
 
