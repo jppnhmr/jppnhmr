@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[employment-analysis](https://github.com/jppnhmr/employment-analysis)
+[hyprland-config](https://github.com/jppnhmr/hyprland-config)
 
 ### Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "	
+> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."	
 >
-> — *Zig Ziglar*
+> — *Socrates*
 
