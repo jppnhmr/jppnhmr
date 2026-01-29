@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."	
+> "The world is changed by your example, not by your opinion."	
 >
-> — *Socrates*
+> — *Paulo Coelho*
 
