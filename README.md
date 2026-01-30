@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The world is changed by your example, not by your opinion."	
+> "Remember that the best relationship is one in which your love for each other exceeds your need for each other."	
 >
-> — *Paulo Coelho*
+> — *Dalai Lama*
 
