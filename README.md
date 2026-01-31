@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Remember that the best relationship is one in which your love for each other exceeds your need for each other."	
+> "Nothing will work unless you do."	
 >
-> — *Dalai Lama*
+> — *Maya Angelou*
 
