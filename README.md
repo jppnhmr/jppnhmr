@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Nothing will work unless you do."	
+> "Have a heart that never hardens, and a temper that never tires, and a touch that never hurts."	
 >
-> — *Maya Angelou*
+> — *Charles Dickens*
 
