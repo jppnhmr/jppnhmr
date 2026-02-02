@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Have a heart that never hardens, and a temper that never tires, and a touch that never hurts."	
+> "Begin now to be what you will be hereafter."	
 >
-> — *Charles Dickens*
+> — *St. Jerome*
 
