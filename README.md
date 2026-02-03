@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Begin now to be what you will be hereafter."	
+> "Why do you stay in prison when the door is so wide open?"	
 >
-> — *St. Jerome*
+> — *Rumi*
 
