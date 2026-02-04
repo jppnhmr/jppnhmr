@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Why do you stay in prison when the door is so wide open?"	
+> "Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream."	
 >
-> — *Rumi*
+> — *Unknown*
 
