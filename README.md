@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream."	
+> "You are what you believe yourself to be."	
 >
-> — *Unknown*
+> — *Paulo Coelho*
 
