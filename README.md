@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You are what you believe yourself to be."	
+> "All know the way; few actually walk it. "	
 >
-> — *Paulo Coelho*
+> — *Bodhidharma*
 
