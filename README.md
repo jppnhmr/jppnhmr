@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "All know the way; few actually walk it. "	
+> "There are as many opinions as there are experts."	
 >
-> — *Bodhidharma*
+> — *Franklin D. Roosevelt*
 
