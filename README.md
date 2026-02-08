@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "There are as many opinions as there are experts."	
+> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."	
 >
-> — *Franklin D. Roosevelt*
+> — *Yoko Ono*
 
