@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."	
+> "Your business is not to 'get somewhere' - it is to be here."	
 >
-> — *Yoko Ono*
+> — *Dan Millman*
 
