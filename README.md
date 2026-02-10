@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[hyprland-config](https://github.com/jppnhmr/hyprland-config)
+[waybar-config](https://github.com/jppnhmr/waybar-config)
 
 ### Daily Quote
 
-> "Your business is not to 'get somewhere' - it is to be here."	
+> "Success is getting what you want, happiness is wanting what you get."	
 >
-> — *Dan Millman*
+> — *W.P. Kinsella*
 
