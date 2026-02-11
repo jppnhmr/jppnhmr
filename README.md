@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Success is getting what you want, happiness is wanting what you get."	
+> "We are always complaining that our days are few, and acting as though there would be no end of them.  "	
 >
-> — *W.P. Kinsella*
+> — *Seneca*
 
