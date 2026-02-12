@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We are always complaining that our days are few, and acting as though there would be no end of them.  "	
+> "Trust your instincts: my first reaction is almost invariably the right one.  "	
 >
-> — *Seneca*
+> — *Estee Lauder*
 
