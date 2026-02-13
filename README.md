@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Trust your instincts: my first reaction is almost invariably the right one.  "	
+> "Who you are is defined by what you're willing to struggle for."	
 >
-> — *Estee Lauder*
+> — *Mark Manson*
 
