@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Who you are is defined by what you're willing to struggle for."	
+> "The only people without problems are those in cemeteries."	
 >
-> — *Mark Manson*
+> — *Tony Robbins*
 
