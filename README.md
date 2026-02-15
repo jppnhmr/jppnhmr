@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The only people without problems are those in cemeteries."	
+> "Do not fight with pigs - you will be smeared in mud but the pig will like it."	
 >
-> — *Tony Robbins*
+> — *George Bernard Shaw*
 
