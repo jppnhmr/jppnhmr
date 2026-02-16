@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Do not fight with pigs - you will be smeared in mud but the pig will like it."	
+> "If you pray for rain, be prepared to deal with some mud."	
 >
-> — *George Bernard Shaw*
+> — *Mary Engelbreit*
 
