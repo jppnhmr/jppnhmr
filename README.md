@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you pray for rain, be prepared to deal with some mud."	
+> "If I can pay the bills, I'm happy."	
 >
-> — *Mary Engelbreit*
+> — *Morgan Wootten*
 
