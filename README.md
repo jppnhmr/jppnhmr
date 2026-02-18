@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If I can pay the bills, I'm happy."	
+> "Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it."	
 >
-> — *Morgan Wootten*
+> — *Alexandre Dumas*
 
