@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it."	
+> "There is nothing quite so tragic as a young cynic."	
 >
-> — *Alexandre Dumas*
+> — *Maya Angelou*
 
