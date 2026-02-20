@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "There is nothing quite so tragic as a young cynic."	
+> "Music is like creating an emotional painting. The sounds are the colors."	
 >
-> — *Maya Angelou*
+> — *Yanni*
 
