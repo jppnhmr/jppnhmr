@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Music is like creating an emotional painting. The sounds are the colors."	
+> "If you don't know, the thing to do is not to get scared, but to learn."	
 >
-> — *Yanni*
+> — *Ayn Rand*
 
