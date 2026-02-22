@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you don't know, the thing to do is not to get scared, but to learn."	
+> "Nature loves to hide."	
 >
-> — *Ayn Rand*
+> — *Heraclitus*
 
