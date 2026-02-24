@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Nature loves to hide."	
+> "No one returns from a long journey the same person they were before."	
 >
-> — *Heraclitus*
+> — *Zen Proverb*
 
