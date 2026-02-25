@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "No one returns from a long journey the same person they were before."	
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."	
 >
-> — *Zen Proverb*
+> — *Celestine Chua*
 
