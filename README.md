@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."	
+> "When the time is gone, you can never get it back."	
 >
-> — *Celestine Chua*
+> — *Stephen King*
 
