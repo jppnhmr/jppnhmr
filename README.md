@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When the time is gone, you can never get it back."	
+> "Anger begins with folly, and ends with repentance. "	
 >
-> — *Stephen King*
+> — *Beverly Sills*
 
