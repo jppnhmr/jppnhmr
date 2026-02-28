@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Anger begins with folly, and ends with repentance. "	
+> "Give out what you most want to come back."	
 >
-> — *Beverly Sills*
+> — *Robin Sharma*
 
