@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Give out what you most want to come back."	
+> "The future doesn't belong to the faint-hearted; it belongs to the brave."	
 >
-> — *Robin Sharma*
+> — *Ronald Reagan*
 
