@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The future doesn't belong to the faint-hearted; it belongs to the brave."	
+> "He suffers more than necessary, who suffers before it is necessary.  "	
 >
-> — *Ronald Reagan*
+> — *Seneca*
 
