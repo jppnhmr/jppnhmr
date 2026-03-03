@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "He suffers more than necessary, who suffers before it is necessary.  "	
+> "Lack of emotion causes lack of progress and lack of motivation."	
 >
-> — *Seneca*
+> — *Tony Robbins*
 
