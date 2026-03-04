@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Lack of emotion causes lack of progress and lack of motivation."	
+> "The beautiful journey of today can only begin when we learn to let go of yesterday."	
 >
-> — *Tony Robbins*
+> — *Steve Maraboli*
 
