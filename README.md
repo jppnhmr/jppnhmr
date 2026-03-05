@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The beautiful journey of today can only begin when we learn to let go of yesterday."	
+> "What's the point in being smart enough to read, if everything you read makes you dumb?"	
 >
-> — *Steve Maraboli*
+> — *C. Sean McGee*
 
