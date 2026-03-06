@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"	
+> "We can change our lives. We can do, have, and be exactly what we wish."	
 >
-> — *C. Sean McGee*
+> — *Tony Robbins*
 
