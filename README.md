@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We can change our lives. We can do, have, and be exactly what we wish."	
+> "Happiness depends on your mindset and attitude."	
 >
-> — *Tony Robbins*
+> — *Roy T. Bennett*
 
