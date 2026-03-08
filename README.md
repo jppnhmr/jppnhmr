@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Happiness depends on your mindset and attitude."	
+> "We're responsible for everything that happens to us."	
 >
-> — *Roy T. Bennett*
+> — *Yanni*
 
