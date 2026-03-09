@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We're responsible for everything that happens to us."	
+> "I dream my painting and I paint my dream."	
 >
-> — *Yanni*
+> — *Vincent van Gogh*
 
