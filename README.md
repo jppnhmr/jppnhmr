@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I dream my painting and I paint my dream."	
+> "Blessed is he who expects nothing, for he shall be disappointed."	
 >
-> — *Vincent van Gogh*
+> — *Jonathan Swift*
 
