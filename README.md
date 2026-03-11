@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Blessed is he who expects nothing, for he shall be disappointed."	
+> "Without the confidence, nothing can be accomplished."	
 >
-> — *Jonathan Swift*
+> — *Sathya Sai Baba*
 
