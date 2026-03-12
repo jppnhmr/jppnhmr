@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[waybar-config](https://github.com/jppnhmr/waybar-config)
+None
 
 ### Daily Quote
 
-> "Without the confidence, nothing can be accomplished."	
+> "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner."	
 >
-> — *Sathya Sai Baba*
+> — *Sonia Ricotti*
 
