@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner."	
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."	
 >
-> — *Sonia Ricotti*
+> — *Criss Jami*
 
