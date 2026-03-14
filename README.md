@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."	
+> "When you judge others, you do not define them, you define yourself."	
 >
-> — *Criss Jami*
+> — *Earl Nightingale*
 
