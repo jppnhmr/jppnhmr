@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "When you judge others, you do not define them, you define yourself."	
+> "There is nothing in the world so irresistibly contagious as laughter and good humor."	
 >
-> — *Earl Nightingale*
+> — *Charles Dickens*
 
