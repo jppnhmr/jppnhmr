@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "There is nothing in the world so irresistibly contagious as laughter and good humor."	
+> "The sun is new each day."	
 >
-> — *Charles Dickens*
+> — *Heraclitus*
 
