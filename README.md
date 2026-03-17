@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The sun is new each day."	
+> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."	
 >
-> — *Heraclitus*
+> — *Elvis Presley*
 
