@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."	
+> "Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with."	
 >
-> — *Elvis Presley*
+> — *Woody Allen*
 
