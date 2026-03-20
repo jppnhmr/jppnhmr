@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Every failure brings with it the seed of an equivalent success."	
+> "The future belongs to those who believe in the beauty of their dreams."	
 >
-> — *Napoleon Hill*
+> — *Eleanor Roosevelt*
 
