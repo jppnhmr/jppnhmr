@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The future belongs to those who believe in the beauty of their dreams."	
+> "Re-examine all that you have been told... dismiss that which insults your soul."	
 >
-> — *Eleanor Roosevelt*
+> — *Walt Whitman*
 
