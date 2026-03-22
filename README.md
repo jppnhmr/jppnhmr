@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Re-examine all that you have been told... dismiss that which insults your soul."	
+> "If there's a definition of freedom, I think it's this: living life on your terms."	
 >
-> — *Walt Whitman*
+> — *Kamal Ravikant*
 
