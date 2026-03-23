@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "If there's a definition of freedom, I think it's this: living life on your terms."	
+> "Always try to be a little kinder than necessary."	
 >
-> — *Kamal Ravikant*
+> — *James Matthew Barrie*
 
