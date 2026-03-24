@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Always try to be a little kinder than necessary."	
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."	
 >
-> — *James Matthew Barrie*
+> — *Roy T. Bennett*
 
