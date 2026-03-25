@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."	
+> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live."	
 >
-> — *Roy T. Bennett*
+> — *Robert F. Kennedy*
 
