@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-None
+[becoming-app](https://github.com/jppnhmr/becoming-app)
 
 ### Daily Quote
 
-> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live."	
+> "Everyone is a moon, and has a dark side which he never shows to anybody."	
 >
-> — *Robert F. Kennedy*
+> — *Mark Twain*
 
