@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Everyone is a moon, and has a dark side which he never shows to anybody."	
+> "Don't want anything. Then you get everything."	
 >
-> — *Mark Twain*
+> — *Seungsahn*
 
