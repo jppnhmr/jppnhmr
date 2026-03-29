@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We are most nearly ourselves when we achieve the seriousness of the child at play."	
+> "Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking."	
 >
-> — *Heraclitus*
+> — *Steve Jobs*
 
