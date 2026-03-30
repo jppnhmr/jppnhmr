@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking."	
+> "Before you embark on a journey of revenge, dig two graves. "	
 >
-> — *Steve Jobs*
+> — *Confucius*
 
