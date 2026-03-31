@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Before you embark on a journey of revenge, dig two graves. "	
+> "Short cuts make long delays."	
 >
-> — *Confucius*
+> — *J.R.R. Tolkien*
 
