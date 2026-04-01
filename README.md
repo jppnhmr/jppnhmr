@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Short cuts make long delays."	
+> "The less you try to impress, the more peaceful you can be."	
 >
-> — *J.R.R. Tolkien*
+> — *Maxime Lagace*
 
