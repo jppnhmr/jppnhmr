@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The less you try to impress, the more peaceful you can be."	
+> "Memory is the scribe of the soul."	
 >
-> — *Maxime Lagace*
+> — *Aristotle*
 
