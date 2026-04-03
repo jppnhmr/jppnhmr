@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Memory is the scribe of the soul."	
+> "Don't let your mind stop you."	
 >
-> — *Aristotle*
+> — *Steve Harvey*
 
