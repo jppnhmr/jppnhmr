@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't let your mind stop you."	
+> "If you cannot understand something, then you have understood it incorrectly."	
 >
-> — *Steve Harvey*
+> — *Kabir*
 
