@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you cannot understand something, then you have understood it incorrectly."	
+> "A man should do his job so well that the living, the dead, and the unborn could do it no better."	
 >
-> — *Kabir*
+> — *Martin Luther King, Jr.*
 
