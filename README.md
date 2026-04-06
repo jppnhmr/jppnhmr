@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "A man should do his job so well that the living, the dead, and the unborn could do it no better."	
+> "The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less."	
 >
-> — *Martin Luther King, Jr.*
+> — *Dan Millman*
 
