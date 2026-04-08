@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less."	
+> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."	
 >
-> — *Dan Millman*
+> — *Wayne Gretzky*
 
