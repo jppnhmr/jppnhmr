@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."	
+> "Life can be wonderful if you're not afraid of it."	
 >
-> — *Wayne Gretzky*
+> — *Charlie Chaplin*
 
