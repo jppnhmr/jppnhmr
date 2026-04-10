@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Life can be wonderful if you're not afraid of it."	
+> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."	
 >
-> — *Charlie Chaplin*
+> — *Naval Ravikant*
 
