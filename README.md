@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."	
+> "The meaning of life is that it stops."	
 >
-> — *Naval Ravikant*
+> — *Franz Kafka*
 
