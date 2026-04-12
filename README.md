@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The meaning of life is that it stops."	
+> "What you become is far more important than what you get."	
 >
-> — *Franz Kafka*
+> — *Jim Rohn*
 
