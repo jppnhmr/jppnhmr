@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "What you become is far more important than what you get."	
+> "Animals don't hate, and we're supposed to be better than them."	
 >
-> — *Jim Rohn*
+> — *Elvis Presley*
 
