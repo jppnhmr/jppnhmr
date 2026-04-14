@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Animals don't hate, and we're supposed to be better than them."	
+> "Learning is a gift, even when pain is your teacher."	
 >
-> — *Elvis Presley*
+> — *Michael Jordan*
 
