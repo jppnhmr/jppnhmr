@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[becoming-app](https://github.com/jppnhmr/becoming-app)
+[zmk-config](https://github.com/jppnhmr/zmk-config)
 
 ### Daily Quote
 
-> "Learning is a gift, even when pain is your teacher."	
+> "This is such a short and precious life that it's really important that you don't spend it being unhappy."	
 >
-> — *Michael Jordan*
+> — *Naval Ravikant*
 
