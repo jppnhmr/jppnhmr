@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Keep your friends close, and your enemies closer."	
+> "To be fully alive is to feel that everything is possible."	
 >
-> — *Sun Tzu*
+> — *Eric Hoffer*
 
