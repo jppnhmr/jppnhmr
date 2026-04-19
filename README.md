@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "To be fully alive is to feel that everything is possible."	
+> "Sad thing is, you can still love someone and be wrong for them."	
 >
-> — *Eric Hoffer*
+> — *Elvis Presley*
 
