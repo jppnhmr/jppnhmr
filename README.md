@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Sad thing is, you can still love someone and be wrong for them."	
+> "The highest level of wisdom is when you not only accept but love adversity."	
 >
-> — *Elvis Presley*
+> — *Maxime Lagace*
 
