@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."	
+> "Fear does not have any special power unless you empower it by submitting to it."	
 >
-> — *Maxime Lagace*
+> — *Les Brown*
 
