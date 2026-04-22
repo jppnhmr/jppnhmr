@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Fear does not have any special power unless you empower it by submitting to it."	
+> "Exceptional thinkers ignore their critics and go about their business making history."	
 >
-> — *Les Brown*
+> — *John Eliot*
 
