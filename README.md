@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."	
+> "Today I begin a new life. I will greet this day with love in my heart."	
 >
-> — *John Eliot*
+> — *Og Mandino*
 
