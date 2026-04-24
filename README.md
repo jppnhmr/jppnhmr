@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Today I begin a new life. I will greet this day with love in my heart."	
+> "Don't let the noise of others opinions drown out your inner voice."	
 >
-> — *Og Mandino*
+> — *Steve Jobs*
 
