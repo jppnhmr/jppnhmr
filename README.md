@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't let the noise of others opinions drown out your inner voice."	
+> "Do not look for a sanctuary in anyone except your self."	
 >
-> — *Steve Jobs*
+> — *Buddha*
 
