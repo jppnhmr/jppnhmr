@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Do not look for a sanctuary in anyone except your self."	
+> "Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results."	
 >
-> — *Buddha*
+> — *James Allen*
 
