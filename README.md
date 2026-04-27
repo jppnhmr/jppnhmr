@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results."	
+> "Who wishes to fight must first count the cost."	
 >
-> — *James Allen*
+> — *Sun Tzu*
 
