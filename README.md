@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Who wishes to fight must first count the cost."	
+> "Men do not attract which they want but that which they are."	
 >
-> — *Sun Tzu*
+> — *James Allen*
 
