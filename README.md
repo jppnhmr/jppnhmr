@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Men do not attract which they want but that which they are."	
+> "Stop comparing yourself to others and focus on your own improvement."	
 >
-> — *James Allen*
+> — *Lolly Daskal*
 
