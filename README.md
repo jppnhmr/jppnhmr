@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[zmk-config](https://github.com/jppnhmr/zmk-config)
+None
 
 ### Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."	
+> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."	
 >
-> — *Lolly Daskal*
+> — *Thich Nhat Hanh*
 
