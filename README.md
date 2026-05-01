@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-None
+[zmk-config](https://github.com/jppnhmr/zmk-config)
 
 ### Daily Quote
 
-> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."	
+> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance. "	
 >
-> — *Thich Nhat Hanh*
+> — *W. Clement Stone*
 
