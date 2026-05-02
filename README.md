@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance. "	
+> "When angry count to ten before you speak. If very angry, count to one hundred."	
 >
-> — *W. Clement Stone*
+> — *Thomas Jefferson*
 
