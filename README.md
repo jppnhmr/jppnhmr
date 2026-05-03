@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When angry count to ten before you speak. If very angry, count to one hundred."	
+> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."	
 >
-> — *Thomas Jefferson*
+> — *Josh Waitzkin*
 
