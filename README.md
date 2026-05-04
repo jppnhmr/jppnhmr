@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."	
+> "The only people without problems are those in cemeteries."	
 >
-> — *Josh Waitzkin*
+> — *Tony Robbins*
 
