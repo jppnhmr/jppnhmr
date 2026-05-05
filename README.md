@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The only people without problems are those in cemeteries."	
+> "It's your outlook on life that counts."	
 >
-> — *Tony Robbins*
+> — *Betty White*
 
