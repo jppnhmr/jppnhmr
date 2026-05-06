@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "It's your outlook on life that counts."	
+> "Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured."	
 >
-> — *Betty White*
+> — *Mark Twain*
 
