@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured."	
+> "Words have no power to impress the mind without the exquisite horror of their reality."	
 >
-> — *Mark Twain*
+> — *Edgar Allan Poe*
 
