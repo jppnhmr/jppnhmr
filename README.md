@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Words have no power to impress the mind without the exquisite horror of their reality."	
+> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."	
 >
-> — *Edgar Allan Poe*
+> — *Ralph Marston*
 
