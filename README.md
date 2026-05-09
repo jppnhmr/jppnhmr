@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."	
+> "The truly rich men are the ones who have health, loved ones and a work they love."	
 >
-> — *Ralph Marston*
+> — *Maxime Lagace*
 
