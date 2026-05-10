@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."	
+> "You become stronger with every problem you face and every obstacle you overcome."	
 >
-> — *Maxime Lagace*
+> — *Celestine Chua*
 
