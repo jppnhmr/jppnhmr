@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You become stronger with every problem you face and every obstacle you overcome."	
+> "Thought is so cunning, so clever, that it distorts everything for its own convenience."	
 >
-> — *Celestine Chua*
+> — *Jiddu Krishnamurti*
 
