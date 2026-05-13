@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Thought is so cunning, so clever, that it distorts everything for its own convenience."	
+> "Go confidently in the direction of your dreams! Live the life you've imagined."	
 >
-> — *Jiddu Krishnamurti*
+> — *Henry David Thoreau*
 
