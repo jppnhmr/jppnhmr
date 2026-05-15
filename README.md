@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Go confidently in the direction of your dreams! Live the life you've imagined."	
+> "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."	
 >
-> — *Henry David Thoreau*
+> — *Andrew Carnegie*
 
