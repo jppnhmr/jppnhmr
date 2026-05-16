@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."	
+> "Growth is in a series of mistakes. That's the only way you learn."	
 >
-> — *Andrew Carnegie*
+> — *Steve Harvey*
 
