@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."	
+> "Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today."	
 >
-> — *Steve Harvey*
+> — *Andrew Carnegie*
 
