@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today."	
+> "Life is a long lesson in humility. "	
 >
-> — *Andrew Carnegie*
+> — *James Matthew Barrie*
 
