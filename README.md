@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[zmk-config](https://github.com/jppnhmr/zmk-config)
+None
 
 ### Daily Quote
 
-> "Life is a long lesson in humility. "	
+> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."	
 >
-> — *James Matthew Barrie*
+> — *Eleanor Roosevelt*
 
