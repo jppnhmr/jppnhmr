@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."	
+> "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."	
 >
-> — *Eleanor Roosevelt*
+> — *Elbert Hubbard*
 
