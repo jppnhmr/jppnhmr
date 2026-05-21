@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."	
+> "If you want to see things just as they are, then you yourself must practice just as you are."	
 >
-> — *Elbert Hubbard*
+> — *Dogen*
 
