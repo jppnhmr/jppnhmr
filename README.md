@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "If you want to see things just as they are, then you yourself must practice just as you are."	
+> "Receive without complaint, Work with fate."	
 >
-> — *Dogen*
+> — *Ming-Dao Deng*
 
