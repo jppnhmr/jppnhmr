@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Receive without complaint, Work with fate."	
+> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine."	
 >
-> — *Ming-Dao Deng*
+> — *G.I. Gurdjieff*
 
