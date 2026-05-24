@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine."	
+> "Don't hate the player. Change the game."	
 >
-> — *G.I. Gurdjieff*
+> — *Steve Harvey*
 
