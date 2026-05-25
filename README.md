@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Don't hate the player. Change the game."	
+> "Dream big. Start small. But most of all, start."	
 >
-> — *Steve Harvey*
+> — *Simon Sinek*
 
