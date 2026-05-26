@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Dream big. Start small. But most of all, start."	
+> "My definition of success is control."	
 >
-> — *Simon Sinek*
+> — *Kenneth Branagh*
 
