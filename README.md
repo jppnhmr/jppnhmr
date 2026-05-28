@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "People think about what they don't want and attract more of the same."	
+> "The only way round is through."	
 >
-> — *Unknown*
+> — *Robert Frost*
 
