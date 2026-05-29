@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The only way round is through."	
+> "Opportunity comes when you continually push forward."	
 >
-> — *Robert Frost*
+> — *Sonia Ricotti*
 
