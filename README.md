@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Opportunity comes when you continually push forward."	
+> "From a certain point onward there is no longer any turning back. That is the point that must be reached."	
 >
-> — *Sonia Ricotti*
+> — *Franz Kafka*
 
