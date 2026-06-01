@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Thought is so cunning, so clever, that it distorts everything for its own convenience."	
+> "To do great work one must be very idle as well as very industrious."	
 >
-> — *Jiddu Krishnamurti*
+> — *Samuel Butler*
 
