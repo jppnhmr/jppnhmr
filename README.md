@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "To do great work one must be very idle as well as very industrious."	
+> "If you think you can do a thing or think you can't do a thing, you're right."	
 >
-> — *Samuel Butler*
+> — *Henry Ford*
 
