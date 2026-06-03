@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."	
+> "Nothing external to you has any power over you."	
 >
-> — *Henry Ford*
+> — *Ralph Waldo Emerson*
 
