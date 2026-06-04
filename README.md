@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Nothing external to you has any power over you."	
+> "When we allow negative messages to fester in our head, they take on a life of their own."	
 >
-> — *Ralph Waldo Emerson*
+> — *Lolly Daskal*
 
