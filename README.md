@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "When we allow negative messages to fester in our head, they take on a life of their own."	
+> "If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month."	
 >
-> — *Lolly Daskal*
+> — *Theodore Roosevelt*
 
