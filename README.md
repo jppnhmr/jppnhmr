@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month."	
+> "The eye with which I see God is the same eye with which God sees me."	
 >
-> — *Theodore Roosevelt*
+> — *Meister Eckhart*
 
