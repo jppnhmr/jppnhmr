@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The eye with which I see God is the same eye with which God sees me."	
+> "Your only obligation in any lifetime is to be true to yourself."	
 >
-> — *Meister Eckhart*
+> — *Richard Bach*
 
