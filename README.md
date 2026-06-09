@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Your only obligation in any lifetime is to be true to yourself."	
+> "Forever is composed of now's."	
 >
-> — *Richard Bach*
+> — *Emily Dickinson*
 
