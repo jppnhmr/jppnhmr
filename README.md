@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Forever is composed of now's."	
+> "It is truth that liberates, not your effort to be free."	
 >
-> — *Emily Dickinson*
+> — *Jiddu Krishnamurti*
 
