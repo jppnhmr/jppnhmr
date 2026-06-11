@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "It is truth that liberates, not your effort to be free."	
+> "It's what you do in the present that will redeem the past and thereby change the future."	
 >
-> — *Jiddu Krishnamurti*
+> — *Paulo Coelho*
 
