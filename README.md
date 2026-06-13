@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Thinking is difficult, that's why most people judge."	
+> "Life itself is the most wonderful fairy tale."	
 >
-> — *Carl Jung*
+> — *Hans Christian Andersen*
 
