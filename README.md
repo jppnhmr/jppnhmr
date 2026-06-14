@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Life itself is the most wonderful fairy tale."	
+> "If you need inspiration, don't do it."	
 >
-> — *Hans Christian Andersen*
+> — *Elon Musk*
 
