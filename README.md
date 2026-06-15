@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "If you need inspiration, don't do it."	
+> "A fall into a ditch makes you wiser."	
 >
-> — *Elon Musk*
+> — *Chinese Proverb*
 
