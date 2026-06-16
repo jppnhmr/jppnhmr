@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "A fall into a ditch makes you wiser."	
+> "Judgments prevent us from seeing the good that lies beyond appearances."	
 >
-> — *Chinese Proverb*
+> — *Wayne Dyer*
 
