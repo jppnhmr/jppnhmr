@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Judgments prevent us from seeing the good that lies beyond appearances."	
+> "People seldom do what they believe in. They do what is convenient, then repent."	
 >
-> — *Wayne Dyer*
+> — *Bob Dylan*
 
