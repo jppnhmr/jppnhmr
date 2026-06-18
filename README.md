@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."	
+> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."	
 >
-> — *Bob Dylan*
+> — *Steve Maraboli*
 
