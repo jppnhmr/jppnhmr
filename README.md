@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."	
+> "Given the choice between the experience of pain and nothing, I would choose pain."	
 >
-> — *Steve Maraboli*
+> — *William Faulkner*
 
