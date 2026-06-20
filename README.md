@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Given the choice between the experience of pain and nothing, I would choose pain."	
+> "You may be one person in this world, but to one person you may mean the world."	
 >
-> — *William Faulkner*
+> — *Unknown*
 
