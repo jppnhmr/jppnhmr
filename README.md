@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You may be one person in this world, but to one person you may mean the world."	
+> "The most wasted day of all is that on which we have not laughed."	
 >
-> — *Unknown*
+> — *Nicolas Chamfort*
 
