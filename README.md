@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The most wasted day of all is that on which we have not laughed."	
+> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."	
 >
-> — *Nicolas Chamfort*
+> — *Harry S. Truman*
 
