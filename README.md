@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."	
+> "A journey of a thousand miles begins with a single step."	
 >
-> — *Harry S. Truman*
+> — *Lao Tzu*
 
