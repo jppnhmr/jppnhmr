@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "A journey of a thousand miles begins with a single step."	
+> "The chief danger in life is that you may take too many precautions."	
 >
-> — *Lao Tzu*
+> — *Alfred Adler*
 
