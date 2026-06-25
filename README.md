@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The chief danger in life is that you may take too many precautions."	
+> "Show me a hero, and I'll write you a tragedy."	
 >
-> — *Alfred Adler*
+> — *F. Scott Fitzgerald*
 
