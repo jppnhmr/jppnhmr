@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Show me a hero, and I'll write you a tragedy."	
+> "Happiness is not a goal...it's a by-product of a life well lived."	
 >
-> — *F. Scott Fitzgerald*
+> — *Eleanor Roosevelt*
 
