@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Happiness is not a goal...it's a by-product of a life well lived."	
+> "What is a friend? A single soul dwelling in two bodies."	
 >
-> — *Eleanor Roosevelt*
+> — *Aristotle*
 
