@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question."	
+> "Every man desires to live long, but no man wishes to be old."	
 >
-> — *John Tukey*
+> — *Jonathan Swift*
 
