@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Every man desires to live long, but no man wishes to be old."	
+> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."	
 >
-> — *Jonathan Swift*
+> — *Eleanor Roosevelt*
 
