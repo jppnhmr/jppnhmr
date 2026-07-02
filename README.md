@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."	
+> "Meditate. It won't be fun but it will surface what you need to deal with."	
 >
-> — *Eleanor Roosevelt*
+> — *Naval Ravikant*
 
