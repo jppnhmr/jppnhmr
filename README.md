@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Meditate. It won't be fun but it will surface what you need to deal with."	
+> "Start each day with a positive thought and a grateful heart."	
 >
-> — *Naval Ravikant*
+> — *Roy T. Bennett*
 
