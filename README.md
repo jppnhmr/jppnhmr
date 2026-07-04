@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Start each day with a positive thought and a grateful heart."	
+> "Truth is such a rare thing, it is delighted to tell it."	
 >
-> — *Roy T. Bennett*
+> — *Emily Dickinson*
 
