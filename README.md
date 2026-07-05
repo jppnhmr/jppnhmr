@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Truth is such a rare thing, it is delighted to tell it."	
+> "Don't cry because it's over. Smile because it happened."	
 >
-> — *Emily Dickinson*
+> — *Dr. Seuss*
 
