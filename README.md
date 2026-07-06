@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Don't cry because it's over. Smile because it happened."	
+> "You will not do incredible things without an incredible dream."	
 >
-> — *Dr. Seuss*
+> — *John Eliot*
 
