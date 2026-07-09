@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Sometimes out of your biggest misery, comes your greatest gain."	
+> "Successful people are not without problems. They're simply people who've learned to solve their problems."	
 >
-> — *Steve Harvey*
+> — *Earl Nightingale*
 
