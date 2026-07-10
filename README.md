@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Successful people are not without problems. They're simply people who've learned to solve their problems."	
+> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"	
 >
-> — *Earl Nightingale*
+> — *Sathya Sai Baba*
 
