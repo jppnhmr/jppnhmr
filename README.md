@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"	
+> "You'll never find rainbows if you're looking down."	
 >
-> — *Sathya Sai Baba*
+> — *Charlie Chaplin*
 
