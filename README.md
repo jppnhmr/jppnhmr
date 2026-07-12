@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You'll never find rainbows if you're looking down."	
+> "Life is but one dream flowing into another."	
 >
-> — *Charlie Chaplin*
+> — *Ming-Dao Deng*
 
