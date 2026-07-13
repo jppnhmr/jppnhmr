@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-None
+[waybar-config](https://github.com/jppnhmr/waybar-config)
 
 ### Daily Quote
 
-> "Life is but one dream flowing into another."	
+> "Comedy = tragedy + time."	
 >
-> — *Ming-Dao Deng*
+> — *Carol Burnett*
 
