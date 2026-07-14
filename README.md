@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Comedy = tragedy + time."	
+> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."	
 >
-> — *Carol Burnett*
+> — *Elbert Hubbard*
 
