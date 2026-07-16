@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."	
+> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."	
 >
-> — *Elbert Hubbard*
+> — *Richard Bach*
 
