@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."	
+> "It's necessary to get the losers out of your life if you want to live your dream."	
 >
-> — *Richard Bach*
+> — *Les Brown*
 
