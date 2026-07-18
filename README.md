@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "It's necessary to get the losers out of your life if you want to live your dream."	
+> "Life is simply what our feelings do to us."	
 >
-> — *Les Brown*
+> — *Honore de Balzac*
 
