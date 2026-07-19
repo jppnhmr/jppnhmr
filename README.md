@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Life is simply what our feelings do to us."	
+> "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others."	
 >
-> — *Honore de Balzac*
+> — *Audrey Hepburn*
 
