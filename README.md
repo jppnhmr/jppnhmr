@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others."	
+> "Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine."	
 >
-> — *Audrey Hepburn*
+> — *Zen Proverb*
 
