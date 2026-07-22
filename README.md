@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't hate the player. Change the game."	
+> "Your neighbor is the man who needs you."	
 >
-> — *Steve Harvey*
+> — *Elbert Hubbard*
 
