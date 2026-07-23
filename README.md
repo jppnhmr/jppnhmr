@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Your neighbor is the man who needs you."	
+> "I try more and more to be myself, caring relatively little whether people approve or disapprove."	
 >
-> — *Elbert Hubbard*
+> — *Vincent van Gogh*
 
