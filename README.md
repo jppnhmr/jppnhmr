@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I try more and more to be myself, caring relatively little whether people approve or disapprove."	
+> "I must also have a dark side if I am to be whole."	
 >
-> — *Vincent van Gogh*
+> — *Carl Jung*
 
