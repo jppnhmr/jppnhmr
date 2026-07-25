@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I must also have a dark side if I am to be whole."	
+> "Watch what you say, and whatever you say, practice it."	
 >
-> — *Carl Jung*
+> — *Soyen Shaku*
 
