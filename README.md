@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Watch what you say, and whatever you say, practice it."	
+> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."	
 >
-> — *Soyen Shaku*
+> — *Steve Harvey*
 
