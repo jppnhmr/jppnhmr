@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."	
+> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."	
 >
-> — *Steve Harvey*
+> — *Voltaire*
 
