@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."	
+> "Try to be a rainbow in someone's cloud."	
 >
-> — *Voltaire*
+> — *Maya Angelou*
 
