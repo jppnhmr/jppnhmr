@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Try to be a rainbow in someone's cloud."	
+> "I don't ever give up. I'd have to be dead or completely incapacitated."	
 >
-> — *Maya Angelou*
+> — *Elon Musk*
 
