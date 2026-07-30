@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I don't ever give up. I'd have to be dead or completely incapacitated."	
+> "For things to change, you have to change."	
 >
-> — *Elon Musk*
+> — *Jim Rohn*
 
