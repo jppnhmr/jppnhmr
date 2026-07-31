@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "For things to change, you have to change."	
+> "The way to love anything is to realize that it may be lost."	
 >
-> — *Jim Rohn*
+> — *Gilbert Chesterton*
 
