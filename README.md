@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The way to love anything is to realize that it may be lost."	
+> "I wasn't brave, I just didn't have time to be scared."	
 >
-> — *Gilbert Chesterton*
+> — *Amelia Earhart*
 
