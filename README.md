@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I wasn't brave, I just didn't have time to be scared."	
+> "Perpetual optimism is a force multiplier."	
 >
-> — *Amelia Earhart*
+> — *Colin Powell*
 
