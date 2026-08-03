@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Perpetual optimism is a force multiplier."	
+> "The biggest adventure is what lies ahead."	
 >
-> — *Colin Powell*
+> — *J.R.R. Tolkien*
 
