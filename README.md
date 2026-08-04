@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The biggest adventure is what lies ahead."	
+> "Success is an iceberg."	
 >
-> — *J.R.R. Tolkien*
+> — *Unknown*
 
