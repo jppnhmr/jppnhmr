@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Success is an iceberg."	
+> "Greatness comes from living with purpose and passion."	
 >
-> — *Unknown*
+> — *Ralph Marston*
 
