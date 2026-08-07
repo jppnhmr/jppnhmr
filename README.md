@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."	
+> "You are now, and you do become, what you think about."	
 >
-> — *Wayne Dyer*
+> — *Earl Nightingale*
 
