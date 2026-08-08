@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You are now, and you do become, what you think about."	
+> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."	
 >
-> — *Earl Nightingale*
+> — *Bhagavad Gita*
 
