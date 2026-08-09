@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."	
+> "Words can only have a positive effect on others if and when they are ready to listen."	
 >
-> — *Bhagavad Gita*
+> — *Christopher Reeve*
 
