@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I've always lived in the moment."	
+> "Ability is a poor man's wealth."	
 >
-> — *Yanni*
+> — *John Wooden*
 
