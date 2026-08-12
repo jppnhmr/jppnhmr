@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[waybar-config](https://github.com/jppnhmr/waybar-config)
+None
 
 ### Daily Quote
 
-> "Ability is a poor man's wealth."	
+> "We will outstretch the hand if you unclench your fist."	
 >
-> — *John Wooden*
+> — *Barack Obama*
 
