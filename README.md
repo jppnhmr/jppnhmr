@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "We will outstretch the hand if you unclench your fist."	
+> "Thinking will not overcome fear but action will."	
 >
-> — *Barack Obama*
+> — *W. Clement Stone*
 
