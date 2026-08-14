@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-None
+[zmk-config](https://github.com/jppnhmr/zmk-config)
 
 ### Daily Quote
 
-> "Thinking will not overcome fear but action will."	
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."	
 >
-> — *W. Clement Stone*
+> — *Charles Darwin*
 
