@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[zmk-config](https://github.com/jppnhmr/zmk-config)
+[zmk-config-new](https://github.com/jppnhmr/zmk-config-new)
 
 ### Daily Quote
 
-> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."	
+> "Work for something because it is good, not just because it stands a chance to succeed."	
 >
-> — *Charles Darwin*
+> — *Vaclav Havel*
 
