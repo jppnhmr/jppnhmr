@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Work for something because it is good, not just because it stands a chance to succeed."	
+> "The problem happens when we have multiple desires. When we have fuzzy desires. When we want to do ten different things and we're not clear about which is the one we care about."	
 >
-> — *Vaclav Havel*
+> — *Naval Ravikant*
 
