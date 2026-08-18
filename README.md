@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Just living is not enough... one must have sunshine, freedom, and a little flower."	
+> "If you spend too much time thinking about a thing, you'll never get it done."	
 >
-> — *Hans Christian Andersen*
+> — *Bruce Lee*
 
