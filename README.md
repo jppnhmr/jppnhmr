@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you spend too much time thinking about a thing, you'll never get it done."	
+> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."	
 >
-> — *Bruce Lee*
+> — *George Bernard Shaw*
 
