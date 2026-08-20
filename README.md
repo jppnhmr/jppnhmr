@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[zmk-config-new](https://github.com/jppnhmr/zmk-config-new)
+[hyprland-config](https://github.com/jppnhmr/hyprland-config)
 
 ### Daily Quote
 
-> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."	
+> "The quality of your life is determined by the quality of questions you ask."	
 >
-> — *George Bernard Shaw*
+> — *Tony Robbins*
 
