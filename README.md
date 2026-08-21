@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The quality of your life is determined by the quality of questions you ask."	
+> "You miss 100% of the shots you don't take."	
 >
-> — *Tony Robbins*
+> — *Wayne Gretzky*
 
