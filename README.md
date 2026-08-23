@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You miss 100% of the shots you don't take."	
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."	
 >
-> — *Wayne Gretzky*
+> — *Steve Harvey*
 
