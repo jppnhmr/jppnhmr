@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."	
+> "We are all here for some special reason."	
 >
-> — *Steve Harvey*
+> — *Robin Sharma*
 
