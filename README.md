@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We are all here for some special reason."	
+> "Great acts are made up of small deeds."	
 >
-> — *Robin Sharma*
+> — *Lao Tzu*
 
