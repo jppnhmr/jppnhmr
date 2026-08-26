@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Great acts are made up of small deeds."	
+> "Courage is resistance to fear, mastery of fear - not absence of fear."	
 >
-> — *Lao Tzu*
+> — *Mark Twain*
 
