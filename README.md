@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Courage is resistance to fear, mastery of fear - not absence of fear."	
+> "The number one cause of failure is the fear of failure."	
 >
-> — *Mark Twain*
+> — *Steve Harvey*
 
