@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The number one cause of failure is the fear of failure."	
+> "Honesty is a very expensive gift, Don't expect it from cheap people."	
 >
-> — *Steve Harvey*
+> — *Warren Buffett*
 
