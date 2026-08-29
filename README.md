@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Honesty is a very expensive gift, Don't expect it from cheap people."	
+> "When you reach the top of the mountain, keep climbing."	
 >
-> — *Warren Buffett*
+> — *Zen Proverb*
 
