@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "When you reach the top of the mountain, keep climbing."	
+> "In the midst of chaos, there is also opportunity."	
 >
-> — *Zen Proverb*
+> — *Sun Tzu*
 
