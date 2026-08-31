@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "In the midst of chaos, there is also opportunity."	
+> "Be a good animal, true to your instincts."	
 >
-> — *Sun Tzu*
+> — *D. H. Lawrence*
 
