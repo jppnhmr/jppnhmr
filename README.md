@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Be a good animal, true to your instincts."	
+> "If we did all the things we are capable of, we would literally astound ourselves."	
 >
-> — *D. H. Lawrence*
+> — *Thomas Edison*
 
