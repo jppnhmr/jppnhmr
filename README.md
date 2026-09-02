@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If we did all the things we are capable of, we would literally astound ourselves."	
+> "The more reasons you have for achieving your goal, the more determined you will become."	
 >
-> — *Thomas Edison*
+> — *Brian Tracy*
 
