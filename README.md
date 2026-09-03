@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The more reasons you have for achieving your goal, the more determined you will become."	
+> "Gratitude is the fairest blossom which springs from the soul."	
 >
-> — *Brian Tracy*
+> — *Henry Ward Beecher*
 
