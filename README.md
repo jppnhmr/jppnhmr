@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."	
+> "Success is going from failure to failure without losing your enthusiasm"	
 >
-> — *Henry Ward Beecher*
+> — *Winston Churchill*
 
