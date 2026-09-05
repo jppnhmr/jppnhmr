@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Success is going from failure to failure without losing your enthusiasm"	
+> "Few things are more deceptive than memories."	
 >
-> — *Winston Churchill*
+> — *Carlos Ruiz Zafon*
 
