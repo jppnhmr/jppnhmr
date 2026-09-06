@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Few things are more deceptive than memories."	
+> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."	
 >
-> — *Carlos Ruiz Zafon*
+> — *Charles Spurgeon*
 
