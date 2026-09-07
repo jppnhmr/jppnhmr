@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."	
+> "I know of only one duty, and that is to love."	
 >
-> — *Charles Spurgeon*
+> — *George Bernard Shaw*
 
