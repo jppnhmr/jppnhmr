@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I know of only one duty, and that is to love."	
+> "Thinking will not overcome fear but action will."	
 >
-> — *George Bernard Shaw*
+> — *W. Clement Stone*
 
