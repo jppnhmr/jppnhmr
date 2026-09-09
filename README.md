@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Thinking will not overcome fear but action will."	
+> "To raise your consciousness, surround yourself with people of higher consciousness."	
 >
-> — *W. Clement Stone*
+> — *Celestine Chua*
 
