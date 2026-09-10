@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "To raise your consciousness, surround yourself with people of higher consciousness."	
+> "Words without actions are the assassins of idealism."	
 >
-> — *Celestine Chua*
+> — *Herbert Hoover*
 
