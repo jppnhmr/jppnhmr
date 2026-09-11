@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Words without actions are the assassins of idealism."	
+> "The eyes of others our prisons; their thoughts our cages."	
 >
-> — *Herbert Hoover*
+> — *Virginia Woolf*
 
