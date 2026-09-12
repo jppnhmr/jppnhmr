@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The eyes of others our prisons; their thoughts our cages."	
+> "Success comes from knowing that you did your best to become the best that you are capable of becoming."	
 >
-> — *Virginia Woolf*
+> — *John Wooden*
 
