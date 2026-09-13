@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Success comes from knowing that you did your best to become the best that you are capable of becoming."	
+> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."	
 >
-> — *John Wooden*
+> — *Mother Teresa*
 
