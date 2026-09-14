@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."	
+> "Don't want anything. Then you get everything."	
 >
-> — *Mother Teresa*
+> — *Seungsahn*
 
