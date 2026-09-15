@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't want anything. Then you get everything."	
+> "It doesn't matter how slow you go, as long as you don't stop."	
 >
-> — *Seungsahn*
+> — *Confucius*
 
