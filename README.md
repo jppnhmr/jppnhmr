@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "It doesn't matter how slow you go, as long as you don't stop."	
+> "Aim for the moon. If you miss, you may hit a star."	
 >
-> — *Confucius*
+> — *W. Clement Stone*
 
