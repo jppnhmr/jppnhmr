@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Aim for the moon. If you miss, you may hit a star."	
+> "Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with."	
 >
-> — *W. Clement Stone*
+> — *Woody Allen*
 
