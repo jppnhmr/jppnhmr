@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-[hyprland-config](https://github.com/jppnhmr/hyprland-config)
+None
 
 ### Daily Quote
 
-> "There is no self-discovery without pain and loss."	
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."	
 >
-> — *Anita Krizzan*
+> — *Dan Millman*
 
