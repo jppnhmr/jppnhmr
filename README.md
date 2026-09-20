@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."	
+> "Not how long, but how well you have lived is the main thing."	
 >
-> — *Dan Millman*
+> — *Seneca*
 
