@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Not how long, but how well you have lived is the main thing."	
+> "Youth has no age."	
 >
-> — *Seneca*
+> — *Pablo Picasso*
 
