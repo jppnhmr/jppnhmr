@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Youth has no age."	
+> "Human beings believe just as they breathe - in order to survive."	
 >
-> — *Pablo Picasso*
+> — *Carlos Ruiz Zafon*
 
