@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Human beings believe just as they breathe - in order to survive."	
+> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"	
 >
-> — *Carlos Ruiz Zafon*
+> — *Og Mandino*
 
