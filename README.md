@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"	
+> "Truth is such a rare thing, it is delighted to tell it."	
 >
-> — *Og Mandino*
+> — *Emily Dickinson*
 
