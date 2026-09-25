@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Truth is such a rare thing, it is delighted to tell it."	
+> "He who laughs at himself never runs out of things to laugh at."	
 >
-> — *Emily Dickinson*
+> — *Epictetus*
 
