@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "He who laughs at himself never runs out of things to laugh at."	
+> "We are all here for some special reason."	
 >
-> — *Epictetus*
+> — *Robin Sharma*
 
