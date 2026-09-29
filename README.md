@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Some of your greatest lessons come from your darkest moments."	
+> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."	
 >
-> — *Roger Lee*
+> — *Paramahansa Yogananda*
 
