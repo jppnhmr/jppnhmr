@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."	
+> "You can tell more about a person by what he says about others than you can by what others say about him."	
 >
-> — *Paramahansa Yogananda*
+> — *Audrey Hepburn*
 
