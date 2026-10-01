@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You can tell more about a person by what he says about others than you can by what others say about him."	
+> "You cannot have a positive life and a negative mind."	
 >
-> — *Audrey Hepburn*
+> — *Joyce Meyer*
 
