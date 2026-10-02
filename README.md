@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You cannot have a positive life and a negative mind."	
+> "There is no way to happiness - happiness is the way."	
 >
-> — *Joyce Meyer*
+> — *Thich Nhat Hanh*
 
