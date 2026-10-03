@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "There is no way to happiness - happiness is the way."	
+> "Everything flows, nothing stands still."	
 >
-> — *Thich Nhat Hanh*
+> — *Heraclitus*
 
