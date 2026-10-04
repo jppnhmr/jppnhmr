@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Everything flows, nothing stands still."	
+> "The biggest risk is not taking any risk. In a world that's changing quickly, the only strategy that is guaranteed to fail is not taking risks."	
 >
-> — *Heraclitus*
+> — *Colin R. Davis*
 
