@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."	
+> "Happiness is not the absence of problems, it's the ability to deal with them."	
 >
-> — *Ralph Marston*
+> — *Steve Maraboli*
 
