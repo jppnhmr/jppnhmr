@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking."	
+> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."	
 >
-> — *Nicolas Chamfort*
+> — *Voltaire*
 
