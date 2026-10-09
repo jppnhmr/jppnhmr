@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."	
+> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."	
 >
-> — *Voltaire*
+> — *Socrates*
 
