@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Freedom lies in being bold."	
+> "The whole of life, from the moment you are born to the moment you die, is a process of learning."	
 >
-> — *Robert Frost*
+> — *Jiddu Krishnamurti*
 
