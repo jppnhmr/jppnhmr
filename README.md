@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The whole of life, from the moment you are born to the moment you die, is a process of learning."	
+> "It is useless to meet revenge with revenge; it will heal nothing."	
 >
-> — *Jiddu Krishnamurti*
+> — *J.R.R. Tolkien*
 
