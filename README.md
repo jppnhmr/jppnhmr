@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "It is useless to meet revenge with revenge; it will heal nothing."	
+> "Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future."	
 >
-> — *J.R.R. Tolkien*
+> — *Earl Nightingale*
 
