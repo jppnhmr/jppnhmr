@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future."	
+> "Life is not meant to be easy my child, but take courage: it can be delightful."	
 >
-> — *Earl Nightingale*
+> — *George Bernard Shaw*
 
