@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Life is not meant to be easy my child, but take courage: it can be delightful."	
+> "Inspire yourself to be great. Being good isn't good enough."	
 >
-> — *George Bernard Shaw*
+> — *Gurbaksh Chahal*
 
