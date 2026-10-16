@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."	
+> "One's best success comes after their greatest disappointments."	
 >
-> — *Gurbaksh Chahal*
+> — *Henry Ward Beecher*
 
