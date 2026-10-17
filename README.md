@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "One's best success comes after their greatest disappointments."	
+> "Dream big and dare to fail."	
 >
-> — *Henry Ward Beecher*
+> — *Norman Vaughan*
 
