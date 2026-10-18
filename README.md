@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Dream big and dare to fail."	
+> "Optimism, when applied to your life, develops strength and peace within you."	
 >
-> — *Norman Vaughan*
+> — *Norman Vincent Peale*
 
