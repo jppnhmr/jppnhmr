@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Optimism, when applied to your life, develops strength and peace within you."	
+> "Awaken. Take heed, do not squander your life."	
 >
-> — *Norman Vincent Peale*
+> — *Dogen*
 
