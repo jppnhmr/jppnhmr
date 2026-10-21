@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Awaken. Take heed, do not squander your life."	
+> "Believe you can and you're halfway there."	
 >
-> — *Dogen*
+> — *Theodore Roosevelt*
 
