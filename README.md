@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Believe you can and you're halfway there."	
+> "You cannot control the behavior of others, but you can always choose how you respond to it."	
 >
-> — *Theodore Roosevelt*
+> — *Roy T. Bennett*
 
