@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You cannot control the behavior of others, but you can always choose how you respond to it."	
+> "Once a decision was made, I didn't worry about it afterward."	
 >
-> — *Roy T. Bennett*
+> — *Harry S. Truman*
 
