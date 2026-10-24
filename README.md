@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Once a decision was made, I didn't worry about it afterward."	
+> "You're never too old for anything."	
 >
-> — *Harry S. Truman*
+> — *Betty White*
 
