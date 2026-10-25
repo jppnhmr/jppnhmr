@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "You're never too old for anything."	
+> "Life is a gift. Never forget to enjoy and bask in every moment you are in."	
 >
-> — *Betty White*
+> — *Celestine Chua*
 
