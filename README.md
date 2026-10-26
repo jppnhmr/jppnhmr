@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Life is a gift. Never forget to enjoy and bask in every moment you are in."	
+> "True friendship ought never to conceal what it thinks."	
 >
-> — *Celestine Chua*
+> — *St. Jerome*
 
