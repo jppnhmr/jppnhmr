@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "True friendship ought never to conceal what it thinks."	
+> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."	
 >
-> — *St. Jerome*
+> — *Socrates*
 
