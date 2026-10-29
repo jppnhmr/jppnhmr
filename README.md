@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Whenever people agree with me I always feel I must be wrong."	
+> "Always remember that you are absolutely unique. Just like everyone else."	
 >
-> — *Oscar Wilde*
+> — *Margaret Mead*
 
