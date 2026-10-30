@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else."	
+> "Mind is the creator of everything. You should therefore guide it to create only good."	
 >
-> — *Margaret Mead*
+> — *Paramahansa Yogananda*
 
