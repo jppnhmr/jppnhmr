@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Mind is the creator of everything. You should therefore guide it to create only good."	
+> "It's easy to be a critic, but being a doer requires effort, risk, and change."	
 >
-> — *Paramahansa Yogananda*
+> — *Wayne Dyer*
 
