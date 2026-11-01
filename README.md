@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "It's easy to be a critic, but being a doer requires effort, risk, and change."	
+> "Excellence is not a skill. It is an attitude."	
 >
-> — *Wayne Dyer*
+> — *Ralph Marston*
 
