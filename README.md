@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Excellence is not a skill. It is an attitude."	
+> "All problems are illusions of the mind."	
 >
-> — *Ralph Marston*
+> — *Eckhart Tolle*
 
