@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."	
+> "The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind."	
 >
-> — *Celestine Chua*
+> — *F. Scott Fitzgerald*
 
