@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "The only thing worse than being blind is having sight but no vision."	
+> "One always begins to forgive a place as soon as it's left behind."	
 >
-> — *Helen Keller*
+> — *Charles Dickens*
 
