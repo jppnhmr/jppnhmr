@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "One always begins to forgive a place as soon as it's left behind."	
+> "Honesty is the first chapter in the book of wisdom."	
 >
-> — *Charles Dickens*
+> — *Thomas Jefferson*
 
