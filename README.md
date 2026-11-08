@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."	
+> "Better to have, and not need, than to need, and not have."	
 >
-> — *Thomas Jefferson*
+> — *Franz Kafka*
 
