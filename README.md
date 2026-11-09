@@ -8,7 +8,7 @@ None
 
 ### Daily Quote
 
-> "Better to have, and not need, than to need, and not have."	
+> "Changing minds is harder than finding people who already agree."	
 >
-> — *Franz Kafka*
+> — *Jack Butcher*
 
