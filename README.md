@@ -4,11 +4,11 @@ Data Analyst / Software Developer.
 
 
 ### What I'm working on
-None
+[hyprland-config](https://github.com/jppnhmr/hyprland-config)
 
 ### Daily Quote
 
-> "Changing minds is harder than finding people who already agree."	
+> "He who can, does."	
 >
-> — *Jack Butcher*
+> — *George Bernard Shaw*
 
