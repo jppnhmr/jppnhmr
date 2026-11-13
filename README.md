@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We think too much and feel too little."	
+> "Never test the depth of river with both the feet."	
 >
-> — *Charlie Chaplin*
+> — *Warren Buffett*
 
