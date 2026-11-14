@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Never test the depth of river with both the feet."	
+> "You can't make someone feel good about themselves until you feel good about yourself."	
 >
-> — *Warren Buffett*
+> — *Robin Sharma*
 
