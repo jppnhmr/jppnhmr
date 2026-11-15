@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "You can't make someone feel good about themselves until you feel good about yourself."	
+> "The only limits in your life are those that you set yourself."	
 >
-> — *Robin Sharma*
+> — *Celestine Chua*
 
