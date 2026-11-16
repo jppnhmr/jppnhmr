@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "The only limits in your life are those that you set yourself."	
+> "Not all those who wander are lost."	
 >
-> — *Celestine Chua*
+> — *J.R.R. Tolkien*
 
