@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Not all those who wander are lost."	
+> "No amount of regretting can change the past, and no amount of worrying can change the future."	
 >
-> — *J.R.R. Tolkien*
+> — *Roy T. Bennett*
 
