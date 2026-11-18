@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "No amount of regretting can change the past, and no amount of worrying can change the future."	
+> "Although the world is full of suffering, it is also full of the overcoming of it."	
 >
-> — *Roy T. Bennett*
+> — *Helen Keller*
 
