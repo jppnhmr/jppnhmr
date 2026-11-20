@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Although the world is full of suffering, it is also full of the overcoming of it."	
+> "In three words I can sum up everything I've learned about life: it goes on."	
 >
-> — *Helen Keller*
+> — *Robert Frost*
 
