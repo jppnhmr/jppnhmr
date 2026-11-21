@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "In three words I can sum up everything I've learned about life: it goes on."	
+> "If we will be quiet and ready enough, we shall find compensation in every disappointment."	
 >
-> — *Robert Frost*
+> — *Henry David Thoreau*
 
