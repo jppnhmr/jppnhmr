@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If we will be quiet and ready enough, we shall find compensation in every disappointment."	
+> "Remember that the best relationship is one in which your love for each other exceeds your need for each other."	
 >
-> — *Henry David Thoreau*
+> — *Dalai Lama*
 
