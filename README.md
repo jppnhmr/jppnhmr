@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't waste time on excuses. Just get it done."	
+> "Unless you're ashamed of yourself now and then, you're not honest."	
 >
-> — *Ralph Marston*
+> — *William Faulkner*
 
