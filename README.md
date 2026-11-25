@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Unless you're ashamed of yourself now and then, you're not honest."	
+> "If you want the best the world has to offer, offer the world your best."	
 >
-> — *William Faulkner*
+> — *Neale Donald Walsch*
 
