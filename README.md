@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "If you want the best the world has to offer, offer the world your best."	
+> "Don't let anyone define you. You define yourself."	
 >
-> — *Neale Donald Walsch*
+> — *Billie Jean King*
 
