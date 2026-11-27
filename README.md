@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "Don't let anyone define you. You define yourself."	
+> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."	
 >
-> — *Billie Jean King*
+> — *Warren Buffett*
 
