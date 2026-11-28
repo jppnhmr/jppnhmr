@@ -8,7 +8,7 @@ Data Analyst / Software Developer.
 
 ### Daily Quote
 
-> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."	
+> "The key to success is to focus our conscious mind on things we desire not things we fear."	
 >
-> — *Warren Buffett*
+> — *Brian Tracy*
 
